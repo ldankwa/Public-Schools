@@ -1,1 +1,1 @@
-Analysis of performance trends in Massachusetts public schools
+Analysis of performance trends in the Massachusetts Public school system
